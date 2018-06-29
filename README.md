@@ -5,4 +5,4 @@ Hema Endüstri firmasında ilk stajım boyunca benden istenen yerelde çalışac
 
 Staj boyunca yaptığım tüm işlerin günlük olarak anlatımını detaylı anlatım adlı dosyada görebilirsiniz.
 
-[![image](http://i.hizliresim.com/1EM5jY.jpg)](http://hizliresim.com/1EM5jY)
+![](https://4.bp.blogspot.com/-Rvb4yjeqDZw/WywdhCLJiqI/AAAAAAAACfA/4Q2OsLgOd_EracqDn2fOJOHxJ0gtA17gwCLcBGAs/s1600/kapakjpg.jpg)
